@@ -2,4 +2,4 @@
 
 I'm a developer in South Korea.
 
-Hopefully some day, I want to become a someone who can help others✨.
+Hopefully some day, I want to become someone who can help others✨.
